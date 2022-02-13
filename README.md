@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @miyuu04141025
-- 👀 I’m interested in mario
+- 👀 I’m interested in MARIO Brothers
 - 🌱 I’m currently learning English
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
